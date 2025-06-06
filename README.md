@@ -1,0 +1,7 @@
+![R](https://github.com/user-attachments/assets/0274f8d4-f660-4ae0-b3ea-fec23667f5cc)
+![png-clipart-laptop-internet-access-web-browser-laptop-computer-network-electronics](https://github.com/user-attachments/assets/662bd551-fe12-40de-a8c9-1bce16b5186a)
+![png-clipart-laptop-dell-euclidean-earth-and-laptops-cdr-computer-network](https://github.com/user-attachments/assets/1825ea99-5bfc-469e-97e7-0a130f1e4b12)
+![png-clipart-illustration-computer-earth-blue-computer-network](https://github.com/user-attachments/assets/c996a343-9349-44c1-8d14-d6b2a2e9bdc4)
+![png-clipart-cable-internet-access-yandex-albom-album-notebook-miscellaneous-electronics](https://github.com/user-attachments/assets/39bcf5d7-a9fc-447c-b6a4-19f66e039f90)
+![Ilustracao-computador-Png](https://github.com/user-attachments/assets/ee07f4f5-38e7-42c4-ab0b-fd7dcc69ee8a)
+![981](https://github.com/user-attachments/assets/119933a6-1c20-4071-8e57-f731c38265e7)
